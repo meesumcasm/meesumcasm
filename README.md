@@ -22,9 +22,9 @@ Now, we’re a family of **20K+** with **millions of organic views** across reel
 
 | Milestone              | Follower Count | Highlight                              |
 |------------------------|----------------|-----------------------------------------|
-| First Viral Reel       | 10,000+         | 50K+ views in one night!                |
+| First Viral Reel       | 10,000+         | 500K+ views in one night!                |
 | Posting Daily          | 5,000+         | Built consistency, found my voice       |
-| International Audience | 100,000+        | Followers from Germany, Pakistan, Turkey |
+| International Audience | 100,000+        | Followers from Asia, Europe, USA |
 | DMs + Collab Requests  | 1,000+        | Organic brand attention started         |
 | Meme Family 🎉         | 20,000+        | Loyal, growing community                |
 
@@ -36,7 +36,7 @@ Now, we’re a family of **20K+** with **millions of organic views** across reel
 - 🎬 **Content Stack** – CapCut, InShot, Adobe Suite  
 - 📅 **Schedule** – Evening posts, weekday rants, Sunday chill  
 - 👥 **Community First** – Replying to DMs/comments daily  
-- ✨ **Hooks & Trends** – I analyze trending sounds + meme formats
+- ✨ **Hooks & Trends** – I analyze latest trends + meme formats
 
 ---
 
